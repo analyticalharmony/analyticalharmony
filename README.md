@@ -1,4 +1,5 @@
 + hi im azel or hei!
++ read my carrd please!
 + please use only masc pronouns if we're not close
 + i am 18 so please keep that in mind byi! 
 + do not copy my skins :( 
